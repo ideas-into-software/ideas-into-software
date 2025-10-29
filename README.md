@@ -99,4 +99,16 @@ In addition, via repositories on this GitHub profile I also share several sample
 
 I am based in EU and available for both short term and long term contract-based work, either on a per-project, part-time or full-time basis, through my personal services company ( Ideas Into Software LLC <https://ideas.into.software/> ). Employment contract is also possible, depending on conditions, but B2B contract is highly preferable. Relocation is also possible depending on conditions.
 
-Lastly, please be aware of impersonation / identity theft issue that impacts me negatively ( https://ideas.into.software/crimes/2025/08/28/crimes-going-public.html ) and keep in mind there is a lot of false information going around due to this problem.
+You can contact me, request a quote or place an order for my services via the following channels:
+ - **Email**: <mhs@into.software>
+ - **Telegram**: <https://t.me/IdeasIntoSoftware>
+ - **Contact form** on my company website: <https://ideas.into.software/contact/>
+ - **Request a quote form** on my company website: <https://ideas.into.software/request-quote/>
+ - **LinkedIn**: <https://www.linkedin.com/in/mhsiemaszko/>
+ - **freelancermap**: <https://www.freelancermap.com/profile/michal-h-siemaszko>
+ - **Fiverr**: <https://www.fiverr.com/into_software/>
+ - **Upwork**: <https://upwork.com/freelancers/michaelsiemaszko>
+ - **Freelancer**: <https://www.freelancer.com/u/intosoftware>
+ - **Useme**: <https://useme.com/en/roles/contractor/ideas-into-software,97585/>
+
+Lastly, please be aware of impersonation / identity theft issue that impacts me negatively ( <https://ideas.into.software/crimes/2025/08/28/crimes-going-public.html> ) and keep in mind there is a lot of false information going around due to this problem.
